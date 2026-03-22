@@ -10,3 +10,10 @@ And all I can breathe is your life
 And sooner or later it´s over
 I just don´t wanna miss you tonight
 
+And I don´t want the world to see me
+Cause I don´t think that they´d understand
+When everything´s made to be broken
+I just want you know who I am
+
+And you can´t want the world to see me
+
