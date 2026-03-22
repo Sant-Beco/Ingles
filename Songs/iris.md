@@ -15,5 +15,11 @@ Cause I don´t think that they´d understand
 When everything´s made to be broken
 I just want you know who I am
 
-And you can´t want the world to see me
+And you can´t fight the tears that ain´t coming
 
+And you can´t want the world to see me
+cause I don´t think that they´d understand
+when everything´s made to be broken
+I just want you to know who i am
+
+and 
