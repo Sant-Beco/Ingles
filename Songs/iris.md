@@ -25,4 +25,9 @@ cause I don´t think that they´d understand
 when everything´s made to be broken
 I just want you to know who i am
 
-and I don´t want the world to see me 
+and I don´t want the world to see me
+Cause I don´t think that they'd understand
+When everything´s made to the broken
+I just want you to know who I am 
+I just want you to know who i am
+I just want you to know who I am
