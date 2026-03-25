@@ -11,3 +11,8 @@ The flower obliged with a soft-hearted grin
 She bent her own to give nectar to him
 
 If only she noticed how deeply he drank
+The Daisy grew taller while she only sank
+He spread out his leaves and he beckoned the shade
+A cover so thick no light could penetrate
+
+She pleaded with him
