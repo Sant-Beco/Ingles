@@ -16,3 +16,9 @@ He spread out his leaves and he beckoned the shade
 A cover so thick no light could penetrate
 
 She pleaded with him
+He ignored all her cries
+He stood like a tower his head held so high
+The flower was stunned, she was spurned and betrayed
+Alone in the darkness, she flew in a range
+
+She
