@@ -21,4 +21,9 @@ He stood like a tower his head held so high
 The flower was stunned, she was spurned and betrayed
 Alone in the darkness, she flew in a range
 
-She
+She hardened her skin and grew out her thorns
+So no other Daisy could hurt her anymore
+But she kept her blush red to this very day
+So she´d never forget all the love she misplaced
+
+So the
