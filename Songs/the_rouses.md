@@ -26,4 +26,7 @@ So no other Daisy could hurt her anymore
 But she kept her blush red to this very day
 So she´d never forget all the love she misplaced
 
-So the
+So the next time you see Daisies In bloom
+Don´t stop for a gander just keep walking through (Keep walking through)
+And the next time you see a Rose of red stain
+Just know that her beauty was not without pain
