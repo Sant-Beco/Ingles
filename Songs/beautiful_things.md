@@ -19,3 +19,5 @@ But there's no man as terrified
 As the man who stands to lose you
 
 Oh, I hope I don´t lose you
+mmm, please, stay
+I want you, I need you, oh, God
