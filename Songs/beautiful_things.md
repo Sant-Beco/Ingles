@@ -25,3 +25,8 @@ Don't take
 These beautiful things that l've got
 
 Please, stay
+These beautiful things that l've got
+Oh, ohh
+Plese, don´t take
+
+I found my mind
