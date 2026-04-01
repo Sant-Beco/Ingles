@@ -31,4 +31,4 @@ Plese, don´t take
 
 I found my mind, I´m feelin' sane
 It's been a while, but I'm findin my faith
-If everythings's 
+If everythings's  
