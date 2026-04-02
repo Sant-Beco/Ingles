@@ -31,4 +31,8 @@ Plese, don´t take
 
 I found my mind, I´m feelin' sane
 It's been a while, but I'm findin my faith
-If everythings's  
+If everythings's good and it's great
+Why do I sit and wait till it's gone?
+Oh, I'll tell ya, I know l've got enough
+I've got peace ant I've got love
+But I'm up at night thinkin' I just might lose it all  
