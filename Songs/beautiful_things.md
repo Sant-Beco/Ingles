@@ -33,6 +33,17 @@ I found my mind, I´m feelin' sane
 It's been a while, but I'm findin my faith
 If everythings's good and it's great
 Why do I sit and wait till it's gone?
-Oh, I'll tell ya, I know l've got enough
+Oh, I'll tell   know l've got enough
 I've got peace ant I've got love
 But I'm up at night thinkin' I just might lose it all  
+
+Plaese, stay
+I want you, I need you, oh, God
+Don't take
+These beautiful things that I've got
+Oh, ooh
+
+Please, stay
+I want you, I need you, oh, God
+I need
+These beautiful things that I've got
