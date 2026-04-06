@@ -11,3 +11,5 @@ Nothin' to say
 When everything gets in the way
 Seems you cannot be replaced
 And I'm the one who will stay, oh oh oh
+
+In this world, it´s just us
