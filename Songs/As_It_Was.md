@@ -13,3 +13,6 @@ Seems you cannot be replaced
 And I'm the one who will stay, oh oh oh
 
 In this world, it´s just us
+You know it's not the same as it was
+In this world, it's just us
+You know it's not the same as it was 
