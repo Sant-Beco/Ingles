@@ -20,3 +20,6 @@ As it was, as it was
 You know it's not the same
 
 Answer the phone
+Harry, you're no good alone
+Why are you sitting at home on the floor?
+What kind of pills are you on?
