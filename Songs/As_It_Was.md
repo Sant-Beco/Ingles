@@ -23,3 +23,8 @@ Answer the phone
 Harry, you're no good alone
 Why are you sitting at home on the floor?
 What kind of pills are you on?
+
+Ringin' the bell
+And nobody's comings to help
+your daddy lives by himslf
+He just wants to know that you're well, oh, oh, oh
