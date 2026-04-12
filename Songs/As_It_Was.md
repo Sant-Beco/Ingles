@@ -29,3 +29,5 @@ And nobody's comings to help
 your daddy lives by himslf
 He just wants to know that you're well, oh, oh, oh
 
+In this world, it's just us
+You know it's not the same as it was
