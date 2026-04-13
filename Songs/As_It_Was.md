@@ -36,3 +36,7 @@ You know it's not the same as it was
 As it was, as it was
 You know it's not the same
 
+Go home, get ahead, light-speed internet
+I don't wanna talk about the way that it was
+Leave America, two kids follow her
+I don´t talk about who's doin't first
