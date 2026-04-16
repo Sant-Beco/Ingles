@@ -5,3 +5,6 @@ I like to think that we had it all
 We drew a map to a better place
 But on that road, I took a fall
 Oh, baby, why did you run away? now
+
+I was there for you in your darknest night
+I was thre for you in your darknet night
