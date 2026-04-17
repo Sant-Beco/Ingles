@@ -14,3 +14,8 @@ When I was at my worst, down on my knees?
 And you said you had my back 
 So I wonder, where were you
 When all the roads you took came back to me?
+
+So I'm following the map that leads to you
+The map that leads to you
+Ain't nothing I can do
+The map that leads to you
