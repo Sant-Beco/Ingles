@@ -19,3 +19,8 @@ So I'm following the map that leads to you
 The map that leads to you
 Ain't nothing I can do
 The map that leads to you
+Following, following, following to you
+The map that leads to you
+Ain't nothing I can do
+The map that leads to you
+following, following, following
