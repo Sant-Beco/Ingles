@@ -24,3 +24,9 @@ The map that leads to you
 Ain't nothing I can do
 The map that leads to you
 following, following, following
+
+I hear your voice in my sleep at nigth
+Hard to resist temptation
+'Cause something strange has come over me
+And now, I can't get over you
+No, I just can't get over you, ooh
