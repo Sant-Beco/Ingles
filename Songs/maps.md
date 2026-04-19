@@ -30,3 +30,6 @@ Hard to resist temptation
 'Cause something strange has come over me
 And now, I can't get over you
 No, I just can't get over you, ooh
+
+I was there for you in your darkest times
+I was there for you in your darkest night
