@@ -33,3 +33,9 @@ No, I just can't get over you, ooh
 
 I was there for you in your darkest times
 I was there for you in your darkest night
+
+But I wonter, where were you
+When I was at  my worst, down on my knees?
+And you said you had my back
+So I wonder, where were you
+When all the roads took came back to me?
