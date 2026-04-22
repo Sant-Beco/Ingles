@@ -44,4 +44,12 @@ So I'm following the map that leads to you
 The map that leads to you
 Ain´t nothing I can do
 The map that leads to you
-Following, 
+Following, following, following to you
+The map that leads to you
+Ain't nothing I can do
+The map that leads to you
+
+Oh, oh, oh, ah
+Oh, oh, oh, ah
+Yeah, Yeah, yeah, ah
+Ah, ah, mm, ah
