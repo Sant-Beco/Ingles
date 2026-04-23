@@ -54,4 +54,7 @@ Oh, oh, oh, ah
 Yeah, Yeah, yeah, ah
 Ah, ah, mm, ah
 
-oh
+Oh, I was there for you, oh, in your darkest time
+Oh, I was there for you, oh, in your darknest night
+Oh, I was there for you, oh, in your darkest time
+Oh, I  was there for you, oh, in your darkest night
