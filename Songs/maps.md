@@ -58,3 +58,8 @@ Oh, I was there for you, oh, in your darkest time
 Oh, I was there for you, oh, in your darknest night
 Oh, I was there for you, oh, in your darkest time
 Oh, I  was there for you, oh, in your darkest night
+
+But I wonder, where were you
+When I was at my worst, down on my knees?
+And you said you had my back 
+So I wonder
