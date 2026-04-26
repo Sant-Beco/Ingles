@@ -62,4 +62,5 @@ Oh, I  was there for you, oh, in your darkest night
 But I wonder, where were you
 When I was at my worst, down on my knees?
 And you said you had my back 
-So I wonder
+So I wonder, where were you 
+When all the roads you took came back to me?
