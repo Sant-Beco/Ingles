@@ -66,3 +66,11 @@ So I wonder, where were you
 When all the roads you took came back to me?
 
 So I'm following the map that leads to you
+The map that leads to you
+Ain't nothing I can do
+The map that leads to you
+Following, following, following to you
+The map that leads to you
+Ain't nothing I can do
+The map that leads to you
+Following, follwing, following
