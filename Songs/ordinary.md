@@ -9,3 +9,5 @@ We'll make the mundane our masterpiece
 Oh, my, my
 Oh my, my love
 I take one look at you
+
+You're taking me out of the ordinary
