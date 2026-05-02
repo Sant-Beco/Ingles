@@ -13,3 +13,6 @@ I take one look at you
 You're taking me out of the ordinary
 I want you laying me down
 Till we´re dead and boried
+Oh the edge of your knife
+Staying drunk on your vine
+The angels up in the clouds
