@@ -11,3 +11,5 @@ Oh my, my love
 I take one look at you
 
 You're taking me out of the ordinary
+I want you laying me down
+Till we´re dead and boried
