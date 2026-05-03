@@ -16,3 +16,10 @@ Till we´re dead and boried
 Oh the edge of your knife
 Staying drunk on your vine
 The angels up in the clouds
+Are jealous knowing we found
+Something so out of the ordinary
+You got me kissing she ground of your sanctuary
+Shatter me with your touch 
+Oh, Lord, return me to dust
+The angels up in the clouds
+Are jealous knowing we found 
