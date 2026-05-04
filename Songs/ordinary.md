@@ -23,3 +23,6 @@ Shatter me with your touch
 Oh, Lord, return me to dust
 The angels up in the clouds
 Are jealous knowing we found 
+
+Hopeless hallelujah
+Oh, this side of Heaven's gate
