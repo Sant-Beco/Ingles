@@ -26,3 +26,5 @@ Are jealous knowing we found
 
 Hopeless hallelujah
 Oh, this side of Heaven's gate
+Oh, my life, how do ya
+Breathe and take my breath away??
