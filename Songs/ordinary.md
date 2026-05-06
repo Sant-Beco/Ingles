@@ -33,3 +33,7 @@ At your altar, I wall pray
 You´re the sculptor, I´m the clay
 Oh my, my
 
+You´re taking me out of the ordinary
+I want you laying me down 
+Till we´re dead and buried
+O
