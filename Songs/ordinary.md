@@ -28,3 +28,8 @@ Hopeless hallelujah
 Oh, this side of Heaven's gate
 Oh, my life, how do ya
 Breathe and take my breath away??
+
+At your altar, I wall pray
+You´re the sculptor, I´m the clay
+Oh my, my
+
