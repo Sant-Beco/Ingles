@@ -36,4 +36,5 @@ Oh my, my
 You´re taking me out of the ordinary
 I want you laying me down 
 Till we´re dead and buried
-O
+On the edge on your knife
+Staying drunk on your vine
