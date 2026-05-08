@@ -38,3 +38,7 @@ I want you laying me down
 Till we´re dead and buried
 On the edge on your knife
 Staying drunk on your vine
+The angels up in the clouds
+Are jealous knowing we found
+Something so out (out) of the ordinary (ordinary)
+You got me kissing the 
