@@ -41,4 +41,8 @@ Staying drunk on your vine
 The angels up in the clouds
 Are jealous knowing we found
 Something so out (out) of the ordinary (ordinary)
-You got me kissing the 
+You got me kissing the ground (ground) of your sanctuary (sancttuary)
+Shatter me with your touch
+Oh, lord, return me to dust
+The angels up in the clouds
+Are jealous knowing we found
