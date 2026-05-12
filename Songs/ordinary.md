@@ -47,4 +47,7 @@ Oh, lord, return me to dust
 The angels up in the clouds
 Are jealous knowing we found
 
-Something so heavenly, hegler than
+Something so heavenly, hegler than ecstasy
+Whenever you're next to me, oh my, my
+World was in the clouds
+Are jealous knowing we found
