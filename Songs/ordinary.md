@@ -51,3 +51,6 @@ Something so heavenly, hegler than ecstasy
 Whenever you're next to me, oh my, my
 World was in black and white until I saw your light
 I thouht you had to die to find
+
+Something so out of the ordinary
+I want you laying
