@@ -53,4 +53,6 @@ World was in black and white until I saw your light
 I thouht you had to die to find
 
 Something so out of the ordinary
-I want you laying
+I want you laying me down
+Till we're dead and buried
+On the edge of your knife
