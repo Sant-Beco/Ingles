@@ -6,3 +6,7 @@ of bleeding us just for fuh
 Men of power telling lies
 Shiffy hands and thristy eyes
 And they can smell your fear like blood
+
+Oh my weary soul
+We've met your kind before
+Set fire to us all
