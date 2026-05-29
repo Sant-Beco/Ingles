@@ -10,3 +10,8 @@ And they can smell your fear like blood
 Oh my weary soul
 We've met your kind before
 Set fire to us all
+And oh sweet providence
+Come save us from ourselves
+From hell and consequense
+
+Feed
