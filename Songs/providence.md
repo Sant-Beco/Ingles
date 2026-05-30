@@ -14,4 +14,6 @@ And oh sweet providence
 Come save us from ourselves
 From hell and consequense
 
-Feed
+Feed the rich and kill the poor
+Turn out the lights and just ignore
+What's going on outside
