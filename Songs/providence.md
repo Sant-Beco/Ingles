@@ -17,3 +17,6 @@ From hell and consequense
 Feed the rich and kill the poor
 Turn out the lights and just ignore
 What's going on outside
+Beating hearts of the deproved
+We're turned their people into slaves
+And we're given up before we're even tried
