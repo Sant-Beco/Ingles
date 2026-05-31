@@ -20,3 +20,10 @@ What's going on outside
 Beating hearts of the deproved
 We're turned their people into slaves
 And we're given up before we're even tried
+
+And oh my weary soul
+We´ve met your kind before
+Set fire to us all
+And oh sweet providence
+Come save us from ourselves
+From Hell and consequense
