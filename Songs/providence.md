@@ -34,3 +34,5 @@ Set fire to us all
 And oh sweet providence
 Come save us from ourselves
 From Hell and consequence
+
+And oh my weasy
