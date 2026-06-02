@@ -35,4 +35,8 @@ And oh sweet providence
 Come save us from ourselves
 From Hell and consequence
 
-And oh my weasy
+And oh my weasy soul (Oh my waary soul)
+Oh my weasy soul (Oh my weasy soul)
+And oh sweet providence
+Come save us from ourselves
+From Hell and consequense
