@@ -8,3 +8,7 @@ But every time i do this my away
 I get caught in the lies of the enemy
 I lay my troubles down
 I'm ready for you now
+
+Bring me out
+Come and find me in the dark now
+Every day by myself I'm breaking down
