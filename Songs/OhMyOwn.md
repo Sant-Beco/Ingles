@@ -16,3 +16,4 @@ I don't wanna fight alone anymore
 
 Bring me out
 From the prison of my own pride
+Prime
