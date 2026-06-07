@@ -20,3 +20,8 @@ My God
 I need a hope I can't deny
 In the end I can't deny
 In the end I'm realizing I was never meant to fight on my own
+
+Every little thing that I've known is every thing I need to let go
+You're so much bigger than world I have made
+So I surrender my soul
+I'm reaching out for your hope
