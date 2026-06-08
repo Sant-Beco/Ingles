@@ -25,3 +25,5 @@ Every little thing that I've known is every thing I need to let go
 You're so much bigger than world I have made
 So I surrender my soul
 I'm reaching out for your hope
+I lay my weapons down
+I'm ready for you now
