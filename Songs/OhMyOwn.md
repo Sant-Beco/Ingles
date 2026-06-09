@@ -32,3 +32,9 @@ Bring me out
 Come and find me in the dark now
 Every day by myself I'm breaking down
 I don't wanna fight alone anymore
+
+Bring me out
+From the prison of my own pride
+My God
+I need a hope I can't deny
+In the end I'm realizing I was never meant to fight on my own
