@@ -27,3 +27,8 @@ So I surrender my soul
 I'm reaching out for your hope
 I lay my weapons down
 I'm ready for you now
+
+Bring me out 
+Come and find me in the dark now
+Every day by myself I'm breaking down
+I don't wanna fight alone anymore
