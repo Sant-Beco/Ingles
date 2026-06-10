@@ -38,3 +38,6 @@ From the prison of my own pride
 My God
 I need a hope I can't deny
 In the end I'm realizing I was never meant to fight on my own
+
+I don't wanna be incomplete
+I reme
