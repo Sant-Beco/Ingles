@@ -47,3 +47,8 @@ Brig me out
 Come and find me in the dark now
 Every day by myself I'm breaking down
 I don't wanna fight alone anymore
+
+Brig me out 
+come and find me in the dark now 
+Every day by myself I'm breaking down
+I don't wanna fight alone anymore
