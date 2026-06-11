@@ -43,3 +43,7 @@ I don't wanna be incomplete
 I remember what you said to me
 I don't have to fight alone
 
+Brig me out 
+Come and find me in the dark now
+Every day by myself I'm breaking down
+I don't wanna fight alone anymore
