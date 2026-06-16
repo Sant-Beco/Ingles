@@ -9,4 +9,5 @@ Show me an oper door
 And you go and slam it on me
 I can't take anymore
 
- 
+ I'm saying: Baby, please, have mercy on  me
+ Take it easy on my heart
