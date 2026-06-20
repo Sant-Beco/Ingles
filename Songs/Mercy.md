@@ -11,3 +11,5 @@ I can't take anymore
 
  I'm saying: Baby, please, have mercy on  me
  Take it easy on my heart
+ Even thoung you don't mean to hurt me
+ You keep tearing me apart
