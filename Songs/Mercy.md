@@ -13,3 +13,5 @@ I can't take anymore
  Take it easy on my heart
  Even thoung you don't mean to hurt me
  You keep tearing me apart
+
+ Would you please have mercy, mercy
