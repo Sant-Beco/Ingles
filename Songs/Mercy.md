@@ -15,3 +15,6 @@ I can't take anymore
  You keep tearing me apart
 
  Would you please have mercy, mercy
+ On my heart?
+ Would you please have mercy, mercy
+ On my heart?
