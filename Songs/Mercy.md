@@ -18,3 +18,8 @@ I can't take anymore
  On my heart?
  Would you please have mercy, mercy
  On my heart?
+
+ I'd drive through the night
+ Just to be near you, baby
+ Heart open, testify
+ Tell me that I'm not crazy
