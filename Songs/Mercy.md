@@ -23,3 +23,7 @@ I can't take anymore
  Just to be near you, baby
  Heart open, testify
  Tell me that I'm not crazy
+
+ I'm not asking for a lot
+ just that you're honest with me
+ And my pride is all i got
