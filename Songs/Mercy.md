@@ -27,3 +27,8 @@ I can't take anymore
  I'm not asking for a lot
  just that you're honest with me
  And my pride is all i got
+
+ I'm saying: Baby, plase, have mercy on me
+ Take it easy on my heart
+ Even Through you don't mean to hurt me
+You keep tearing me apart
