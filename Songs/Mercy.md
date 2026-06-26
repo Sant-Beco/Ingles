@@ -33,3 +33,6 @@ I can't take anymore
  Even Through you don't mean to hurt me
 You keep tearing me apart
 
+Would you please have mercy on me?
+I'm a puppet on your strings
+And
