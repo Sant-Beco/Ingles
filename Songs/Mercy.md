@@ -38,4 +38,4 @@ I'm a puppet on your strings
 And even though you got good intentions
 I need you to set me free
 
-I'm 
+I'm begging you for mercy, mercy
