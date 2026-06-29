@@ -39,3 +39,6 @@ And even though you got good intentions
 I need you to set me free
 
 I'm begging you for mercy, mercy
+I'm begging you, begging you, please, baby
+I', begging you for mercy, mercy
+Oh,  I'm begging you, I'm begging you, yeh
