@@ -14,3 +14,6 @@ This world spins fast and time ain't free
 We're all just sparks in the midningt sky
 Fading out slow, sayin' goodbye
 So pour that whiskey, let it burn fire
+Lauht at the scars that prove I'm alive
+We're all just livin', hm
+On borrowed time
