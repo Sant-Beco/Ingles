@@ -12,3 +12,4 @@ Singin' my truth, whatever it roots
 Cause I don't give a damn who don't like me
 This world spins fast and time ain't free
 We're all just sparks in the midningt sky
+Fading out slow, sayin' goodbye
