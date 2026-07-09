@@ -17,3 +17,5 @@ So pour that whiskey, let it burn fire
 Lauht at the scars that prove I'm alive
 We're all just livin', hm
 On borrowed time
+
+Had some lovers, lost some friends
