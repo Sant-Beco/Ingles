@@ -19,3 +19,6 @@ We're all just livin', hm
 On borrowed time
 
 Had some lovers, lost some friends
+Some stories start, some just end
+Every tear I shed don't wash me clean
+Of all them fake folks and broken dreams
