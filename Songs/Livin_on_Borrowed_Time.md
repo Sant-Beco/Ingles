@@ -25,3 +25,4 @@ Of all them fake folks and broken dreams
 And I don't beg, I don't chase
 Don't need no crown, I got my grace
 Life´s too short to wear a mask 
+So I'll say my piece and sip my flask
