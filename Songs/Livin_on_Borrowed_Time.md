@@ -26,3 +26,5 @@ And I don't beg, I don't chase
 Don't need no crown, I got my grace
 Life´s too short to wear a mask 
 So I'll say my piece and sip my flask
+
+'Cause I don't give a damn who don't like me'
